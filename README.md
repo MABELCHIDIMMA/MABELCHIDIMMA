@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MABELCHIDIMMA
+- 👀 I’m interested in SALES AND MARKETTING , CRM, SEO, FREELANCING  
+- 🌱 I’m currently learning Data Analysis and  SEO 
+- 💞️ I’m looking to collaborate on Digital Marketing,SEO And Graphics Designs
+- 📫 How to reach me Chidimma_mabel@yahoo.com or whatsapp +2348166885328
